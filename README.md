@@ -3,7 +3,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/TheMaliSpect](https://github.com/TheMaliSpect)
 
-- 📫 How to reach me **Mali#0045**
+- 📫 How to reach me **malighetto**
  
  
 <h3 align="left">Connect with me:</h3>
